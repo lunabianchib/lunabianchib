@@ -4,7 +4,7 @@
 
 「 You can follow me in the next sites┆plataforms where i constantly publish new content 」
 - ♕ [Personal Linkedin](https://www.linkedin.com/in/luna-bianchi-borches-005801205/)
-- დ [Mi Web](https://www.eclipsemelodial.com)
+- დ [Mi Web](https://lunabianchib.github.io/)
 - ❖ [Mi Instagram](https://www.instagram.com/luna_bianchib) 
 
 <!---
